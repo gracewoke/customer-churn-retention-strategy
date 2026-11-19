@@ -1,0 +1,1 @@
+A California phone and internet provider lost more than a quarter of its customers in one quarter. I took the role of a consultant briefing the Chief Marketing Officer. The brief was to find who leaves and why, predict who leaves next, and show where a retention budget earns the most.
